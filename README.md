@@ -8,3 +8,5 @@ However,I am opened for partnership  and remote opportunities in HTML,CSS ,C++ a
 
 In additionally,I am adding my knowledge on python and mobile app development 
 
+ I can be reached for partnership , remote jobs for HTML,CSS and JavaScript and also can do a junior consulting for tech related things and also further information on about portfolio and work through my email address fredaosadolor@gmail.com 
+
