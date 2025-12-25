@@ -10,3 +10,5 @@ In additionally,I am adding my knowledge on python and mobile app development
 
  I can be reached for partnership , remote jobs for HTML,CSS and JavaScript and also can do a junior consulting for tech related things and also further information on about portfolio and work through my email address and Whatsapp fredaosadolor@gmail.com 
 +2348160583940
+
+My Github work  https://github.com/osadolorfreda
